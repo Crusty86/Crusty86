@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Crusty86
 -**cityGirls^^**
   
-- 💞️ Learnign the language...
+- 💞️ Learning the language...
 --- 📫 cristalargueta@rocketmail.com ---Email
 
 <!---
